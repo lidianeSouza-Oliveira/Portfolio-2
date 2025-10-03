@@ -49,7 +49,7 @@ Planilha para análise comercial por produto, vendedor e região, com tabelas di
 
 Sou organizada, curiosa e gosto de transformar dados em informações úteis. Tenho experiência com planilhas, tabelas dinâmicas e gráficos, e estou sempre buscando aprender mais sobre análise de dados e ferramentas de BI.
 
-📧 **Contato**: lidiane.souza@email.com  
+📧 **Contato**: lidiane.souza@gmail.com ou lidiane.ldsf63@gmail.com 
 📍 **Localização**: Rio de Janeiro, Brasil
 
 ---
